@@ -2,9 +2,7 @@
 
 #### This page has all the intel you need to know about Steve Rogers.
 
-
-![Captain America](https://vignette.wikia.nocookie.net/marvelcinematicuniverse/images/d/d7/CapAmerica-EndgameProfile.jpg/revision/latest?cb=20190423175339)
-
+![Captain America](https://i.pinimg.com/originals/62/b1/41/62b1416d903baf558a483af036c634c5.jpg)
 # **CHARACTER BIO**
 ## **Introduction**
 #### Steve Rogers is the first of his kind, and maybe....the last too. He is one of the most significant characters in the Marvel Universe. 
