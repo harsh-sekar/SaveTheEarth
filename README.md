@@ -64,16 +64,6 @@
    
  
 
-
-# Special Characteristics : 
-
-#### 1.Extremely Slow Ageing Process
-
-#### 2.Quick Healing Ability
-
-#### 3.Vibranium Shield Crafted by Howard Stark :100:
-
-
 # Quotes
 
 
