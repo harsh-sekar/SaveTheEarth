@@ -71,11 +71,8 @@
 
 #### 2.Quick Healing Ability
 
-#### 3.Vibranium Shield Crafted by Howard Stark
+#### 3.Vibranium Shield Crafted by Howard Stark :100:
 
-#### 4.Strength and Durability :100:
-
-#### 5. Wisdom, Loyalty and Determination :100:
 
 # Quotes
 
