@@ -33,7 +33,7 @@
 ##### Despite all odds,he had only one desire - Enlist in the army and fight Nazis. Rogers got rejected by the army officials several times due to his brittle structure.
 ## **THE CHANGE ROGERS ALWAYS DREAMT OF...**
 
-#### Behind the scenes...as Rogers kept on getting rejected, Dr Erskin patiently watched. He had finally found his perfect man for the **SUPER-SOLDIER PROGRAM**- An astonishing combo of serum and radiation. After being infused with the Super-Soldier serum, Steve Roger’s body reached the upper-most limits of human perfection in strength, stamina, agility, and durability. With training, he learned to use these traits in perfect unison in any given situation. Rogers’ charisma and shrewd decision-making ability are also recognized as being at the top-level of any human on Earth. Thus, Captain America was incarnated....
+#### Behind the scenes...as Rogers kept on getting rejected, Dr Erskin patiently watched. He had finally found his perfect man for the **SUPER-SOLDIER PROGRAM**- An astonishing combo of serum and radiation. After being infused with the Super-Soldier serum, Steve Rogerâ€™s body reached the upper-most limits of human perfection in strength, stamina, agility, and durability. With training, he learned to use these traits in perfect unison in any given situation. Rogersâ€™ charisma and shrewd decision-making ability are also recognized as being at the top-level of any human on Earth. Thus, Captain America was incarnated....
 
 # IMPORTANT ACHIEVEMENTS AND EVENTS
 
@@ -78,7 +78,7 @@
 #### 5. Wisdom, Loyalty and Determination :100:
 
 # Quotes
-#### - "The price of freedom is high, it always has been. And it's a price I'm willing to pay."-indicates that he knows the importance of freedom like any true leader.
+
 
 #### -"Finish it. Cause I'm with you till the end of the line."-_**loyalty**_ 
 
@@ -86,5 +86,3 @@
 
 #### -"If you get hurt...hurt em' back. If you get killed...walk it off- _**bravery**_
 
-
-#### This clearly indicates that Captain America is the most important Avenger alongside Iron-Man and Thor.
